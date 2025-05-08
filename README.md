@@ -4,7 +4,7 @@
 <p><a href="https://partner.bitget.com/bg/new1" target="_blank">Bitget tilmeldingsbonus - Opret Bitget-konto nu</a></p>
 
 
-<img src="https://images.mirror-media.xyz/publication-images/nIFzTF8D-Yu6Z-Cmkito1.png" alt="Bitget Henvisningskode" width="600">
+<img src="https://images.mirror-media.xyz/publication-images/nIFzTF8D-Yu6Z-Cmkito1.png" alt="Bitget Henvisningskode" width="1080">
 
 
 <ul>
